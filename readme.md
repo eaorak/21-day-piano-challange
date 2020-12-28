@@ -20,3 +20,13 @@ I'll be practicing piano everyday for 21 days. Let's see how it goes 😊🤘
 
 22.12.2020 DONE! 🎹 ✅
 
+23.12.2020 DONE! 🎹 ✅
+
+24.12.2020 None
+
+25.12.2020 None
+
+26.12.2020 DONE! 🎹 ✅
+
+27.12.2020 None
+
