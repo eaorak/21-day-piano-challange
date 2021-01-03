@@ -40,3 +40,8 @@ I'll be practicing piano everyday for 21 days. Let's see how it goes 😊🤘
 
 01.01.2021 DONE! 🎹 ✅
 
+02.01.2021 None
+
+03.01.2021 DONE! 🎹 ✅
+
+Challenge completed! :) I'll continue to practice 💪🙌
